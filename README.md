@@ -1,4 +1,4 @@
 # Teamarbeit2
 Wie alt Katze? 
-Sie heißt Piraschulja
+ 2 Jahre alt. Sie heißt Piraschulja
 Wie heißt dein Hund?
