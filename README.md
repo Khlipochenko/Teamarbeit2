@@ -4,6 +4,6 @@ Wie alt Katze?
 
 Sie heißt Piraschulja
 Wie heißt dein Hund?
-Rocky, der ist 2 Jahre alt. wie alt Piraschulja? 
+Rocky, der ist 2 Jahre alt. wie alt Piraschulja? Schöner Name
  Sie ist auch 2 jahre alt. 
  
