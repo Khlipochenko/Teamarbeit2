@@ -1,5 +1,5 @@
 # Teamarbeit2
-Wie alt Katze? 
+Wie alt ist deine Katze? 
 
 
 Sie heißt Piraschulja
